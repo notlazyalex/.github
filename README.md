@@ -1,1 +1,3 @@
-# .github
+# Lazy / Alex
+
+Are we goated?
