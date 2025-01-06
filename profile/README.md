@@ -1,3 +1,3 @@
-# Lazy / Alex
+ Lazy / Alex
 
 Are we goated?
